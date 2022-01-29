@@ -1,15 +1,15 @@
 - 👋 Hi, I’m @hanitirkey
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in writing books
+- 🌱 I’m currently learning piano
+- 💞️ I’m looking to collaborate with advertisers 
+- 📫 How to reach me will all the advertisers and marketing 
 
 <!---
 hanitirkey/hanitirkey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
 
-
+the server is for all the techies, and advertisers at once any one can do ads, as long as it does not voilates the market terms and conditions
  https://discord.gg/Um3ugaywcc , https://hanitirkey722.wixsite.com/website, https://www.patreon.com/bePatron?u=4740064,https://www.fiverr.com/share/EkDBGY
 selling ads for cheaper rates as well as you can sell your products and all the ads are welcomed >> as well ads for selling your techs :KomiNod: :technologist: 
 if you want to for me to write blogs and article or if you want pre made server there is the :writing_hand: fiverr link for you i will do it one day - two days
